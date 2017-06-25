@@ -1,1 +1,1 @@
-# beginnigs
+# beginnings
